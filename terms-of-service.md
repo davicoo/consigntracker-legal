@@ -80,4 +80,4 @@ to conflict of law principles.
 
 For questions about these Terms, contact us at:
 
-**Email**: davidcoo@me.com
+**Email**: help@uglystuff.ca

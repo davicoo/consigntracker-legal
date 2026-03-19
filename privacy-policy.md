@@ -81,4 +81,4 @@ changes by updating the date at the top of this page.
 
 If you have questions about this privacy policy, please contact us at:
 
-**Email**: davidcoo@me.com
+**Email**: help@uglystuff.ca
